@@ -1,1 +1,1 @@
-Data Engineer @DSEI/SLAM
+Data Engineer at New Work SE @DSEI/SLAM
