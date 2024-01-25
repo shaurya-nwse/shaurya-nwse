@@ -1,1 +1,1 @@
-Data Engineer at New Work SE
+Senior Data Engineer at New Work SE
