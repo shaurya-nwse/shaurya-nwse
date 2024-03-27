@@ -1,1 +1,1 @@
-Senior Software Engineer - Data at New Work SE
+Senior Software Engineer - Data
